@@ -1,4 +1,2 @@
 Revisi I
 Revisi II
-
-
